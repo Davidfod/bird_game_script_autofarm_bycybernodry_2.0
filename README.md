@@ -1,1 +1,0 @@
-# bird_game_script_autofarm_bycybernodry_2.0
